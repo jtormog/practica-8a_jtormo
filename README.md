@@ -1,0 +1,1 @@
+# prectica-8a_jtormo
